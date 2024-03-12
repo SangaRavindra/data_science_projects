@@ -22,7 +22,7 @@ Your presence here is appreciated, and I'm thrilled to have you on this journey.
 |:----------:|:----------:|
 ||
 ||
-|)|
+||
 
 
 
