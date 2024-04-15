@@ -25,5 +25,4 @@ Your presence here is appreciated, and I'm thrilled to have you on this journey.
 ||
 
 
-
-Regards Siddam Sai Phanindra  [LinkedIn](https://www.linkedin.com/in/s-ravindra-reddy-01b3a9206)
+Ravindra redy  [LinkedIn](https://www.linkedin.com/in/s-ravindra-reddy-01b3a9206)
